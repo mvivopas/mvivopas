@@ -7,11 +7,9 @@ in particular. The field I'm currently most immersed in is NLP, of course, as my
 Other things that may interest you to know about me are:
 
 - 🔡 I'm currently working on NLP
-- 🏄🏽‍♀️ I'm currently learning how to surf
+- 🏄🏽‍♀️🗿 I'm currently learning how to surf and boulder
 - 👥 I'm looking to collaborate on appealing ideas
 - 📫 How to reach me: [Linkedin], [Email]
-- ⚡ Fun fact: i love _animals_ 🦥 and i love _travelling_ ✈️ and i mean it. I grew up in Menorca's countryside, surrounded by farm animals (actually, they were my neighbors', but anyway) and domestic animals (though my cats/dogs/chickens are way wilder than the average). For the traveling part, I have been living for almost two months in South Africa 🌍 working remotely 👩🏽‍💻, and the only thing I can think about is traveling and discovering.
-
 
 [Linkedin]: https://www.linkedin.com/in/maria-viv%C3%B3-pascual-80467a200/
 [Email]: maria.vivo1203@gmail.com
